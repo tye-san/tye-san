@@ -1,0 +1,3 @@
+- Hi, I’m Tye
+- I’m interested in anime, coding, reading, music, psychology, 
+- How to reach me - Discord: Ether#2676
